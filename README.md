@@ -1,3 +1,3 @@
 # my-first-repo
 
-# Everything is so grat in life and I love to sing
+# Everything is so great in life and I love to sing
